@@ -1,1 +1,1 @@
-# just a mess around to same people text
+# just a mess around to send people text
